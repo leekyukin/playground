@@ -1,2 +1,2 @@
 # playground
-🛝 FUCKING MY PLAYGROUND 🤪
+🛝 MY FUCKIN PLAYGROUND 🤪
